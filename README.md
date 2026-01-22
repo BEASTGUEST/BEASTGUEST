@@ -18,8 +18,7 @@ basic dni lolz, proshippers n under 16s i also block freely so don't get bothere
 
 ![](https://64.media.tumblr.com/25fffd5152fc990d637ecfc0b63417bc/bf2611b1e77359db-6e/s540x810/7b0255a875ff6b1005b022ae2415e4a7a2dfe349.gifv)
 
-<img width="196" height="212" alt="image" src="https://github.com/user-attachments/assets/dc275aae-ce02-47f6-8cfd-4019597af13b" /> <img width="140" height="204" alt="image" src="https://github.com/user-attachments/assets/c7d8502a-e82a-4438-8ed1-72ecaf059b32" /> <img width="188" height="220" alt="image" src="https://github.com/user-attachments/assets/43581cf0-7b58-4e8f-8fa4-9023c2ed043a" />
- <img width="152" height="204" alt="image" src="https://github.com/user-attachments/assets/2ddebd8e-9b1a-4799-bb83-e859fc504a26" /> <img width="196" height="216" alt="image" src="https://github.com/user-attachments/assets/d81f2373-526c-4a29-ab0c-0db5ceda7d2f" /> <img width="192" height="224" alt="image" src="https://github.com/user-attachments/assets/4452f081-96f2-4895-a38d-43c1e57f13a0" /> <img width="176" height="196" alt="image" src="https://github.com/user-attachments/assets/715b80a3-9cc3-40a7-ac6a-f2aa9b83bd00" /> <img width="188" height="220" alt="image" src="https://github.com/user-attachments/assets/1f215aeb-4019-48bc-b401-44c237afc7cf" />
+
 
 
 
