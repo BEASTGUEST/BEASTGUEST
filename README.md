@@ -15,7 +15,6 @@ basic dni lolz, proshippers n under 16s i also block freely so don't get bothere
 
 ![](https://static.wikia.nocookie.net/fivenightsatfreddys/images/8/86/267CF59E-5A49-416B-AD78-2ED2BD150771.gif/revision/latest/scale-to-width/360?cb=20180722190441)![](https://static.wikia.nocookie.net/freddys-world/images/b/bc/1mwIt26.gif/revision/latest/thumbnail/width/360/height/360?cb=20160124133252)
 
-![](https://64.media.tumblr.com/25fffd5152fc990d637ecfc0b63417bc/bf2611b1e77359db-6e/s540x810/7b0255a875ff6b1005b022ae2415e4a7a2dfe349.gifv)
 
 
 
