@@ -1,33 +1,4 @@
 
-<img width="2500" height="625" alt="image" src="https://github.com/user-attachments/assets/624e2cf2-bdb1-495e-a0fa-6995738444cd" />
-
-
-HENRY: HE/HIM ![](https://64.media.tumblr.com/070178f343855a964a2252372cbd0775/a094d1d85186ab64-f5/s75x75_c1/178ed17ecdd8c75507b13fefc3d8f53b7f11ee97.gifv)
-
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/0a5e7bcc-e7bd-45b5-9078-d0ff2064e9bb" /> <img width="250" height="232" alt="image" src="https://github.com/user-attachments/assets/0bf9d545-26e3-43d2-abfd-08c9d5a15494" />
-
-
-
- IM 18,![](https://64.media.tumblr.com/bd68a7d67f06fbaebc920929208f63ee/65ebec8c5d63c44e-50/s75x75_c1/9702e90aff23217f1111bf5410f5dd0a89af4f6f.gifv)
- i wish to make new friends so pls int! i have my friends who i adore and i am usually always with them ![](https://64.media.tumblr.com/4b05dd0b9dd13ff9ec08107c29cea619/51d5a1efca1b7fde-ab/s75x75_c1/c8062d8dfb070ec070372e2ddf7c71c07aa9a944.gifv) i LOVE fnaf AND I LOVE OVERWATCH, i have since release :-3. and i can be a bit hyper when meeting new people as a heads up! oh yeah yellowjackets fans PLEASE int i feel like you dont exist. i also have my beautiful bf who i love so much! i love you milo! and i love shadow freddy n RWQFSFASXC SO much my favs forever <img width="50" height="60" alt="image" src="https://github.com/user-attachments/assets/c6969e0e-ee62-4e27-9602-e1d8930e4da2" /> so me and boyfie, and cassidy hanzo and genji hehe.
- 
-![](https://64.media.tumblr.com/44b6ac042929fca371d4fa8dcb8e06c4/tumblr_paxrigjUQQ1w51kvho1_500.gifv)
-
-
-DNI ![](https://64.media.tumblr.com/48e63740e76ced8bec0d73aca9091cf0/0267cbb62ed7e3e6-60/s75x75_c1/f145384545354c55426c3ccbfb05dcc35b453fed.gifv)
-basic dni lolz, proshippers n under 16s i also block freely so don't get bothered by that:p ![](https://64.media.tumblr.com/e7f97fd6c614c4feccf29ef8cb012053/51d5a1efca1b7fde-fa/s75x75_c1/fb8c2bdb9f77bfff47ff356ee8adee230d88e68f.gifv)
-
-
-<img width="690" height="53" alt="image" src="https://github.com/user-attachments/assets/04b21f9d-6dd3-4d9a-b83a-864f988089ce" />
-
-
-<img width="104" height="104" alt="image" src="https://github.com/user-attachments/assets/1693b181-74be-43a8-b167-0b87db610917" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/04c673c0-31cc-4b19-a94d-abf2ecc9f8e6" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/a663ef50-f273-45bd-8699-6d19ba1a8991" />  <img width="92" height="92" alt="image" src="https://github.com/user-attachments/assets/589c273b-96ce-4b2d-82d9-6c3c873c2210" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/8067d116-b5af-493d-a9e8-02a80a314851" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/be4141a8-d8be-4b1d-a745-d5cc23db38a3" /> <img width="104" height="104" alt="image" src="https://github.com/user-attachments/assets/ef65b851-b22f-42c2-bbf5-57fc4a8767df" /> <img width="92" height="92" alt="image" src="https://github.com/user-attachments/assets/bfdb3384-2f5e-458d-a89e-b67d7f22edb9" />  
-
-<img width="690" height="53" alt="image" src="https://github.com/user-attachments/assets/65832bac-7972-4ba6-b4d0-d915a69da58b" />
- 
-
-![](https://64.media.tumblr.com/bae4ed293143039ba93f469c9367914a/1729c23880ebe6f7-fd/s100x200/15505db53392f9913693bf238feac147b3bb63b0.gifv)![](https://64.media.tumblr.com/8a85c6a9d9f3997f12f4f78a6377ae17/562bc653002dd72e-58/s100x200/8367a0d1ce3f52623983a7d6bc8fe3118195f9f3.gifv) ![](https://64.media.tumblr.com/bc7ac2d34866369508707db70c30914d/1344d672e2b2c2ad-c3/s100x200/276edacd35d2f440e4843d6e31917a2b90a022a8.pnj) ![](https://64.media.tumblr.com/9f7aa7377efe3125cd1b656005fafed6/abb353c3a2fae4c6-e3/s100x200/6dc3f2311c7f0fc8709d4db0033f454c09505906.gifv)![](https://64.media.tumblr.com/1c7b1f9e38a4e833b975b8e17da97fc0/ee4b754d993b644f-68/s100x200/2c39611cef87e7e51b78ab6f7a36e736ff27812b.pnj)![](https://64.media.tumblr.com/9083b47c3d4c1d56b058a0bdd766dc1b/c70eceb85273bf61-0d/s100x200/6284b4dc2a1ef4c2da4e98c44b6e6a836420c79b.pnj)![](https://64.media.tumblr.com/ebfab8902a63a074355cde3fe353a2d4/da1b35bc5870615c-43/s100x200/2898f60859852f992a72cc7985ff639d03e9ec5e.gifv)![](https://64.media.tumblr.com/4d3ba9913eade801ad8b636661cc9888/674e60854576c65d-ee/s100x200/91b6097543822425ecf2abfeb0a69d95937a9e9d.pnj)![](https://64.media.tumblr.com/4f591f714de4adcd1b3ab12d95d39c5b/be482819b908226b-95/s100x200/29fd33eff0d2826681102d4de51036c43b87d4bc.pnj)![](https://64.media.tumblr.com/f391792e0ab9fbec455042ae80aae58a/f8a3c7e7243cfa22-16/s250x400/ee7d9c54735ac86cd31685b156a58d578f0fb34d.gifv)![](https://64.media.tumblr.com/4f1f21fb49507ffafc81fe30b6d5ebf8/afbd5b4ee49c7302-f6/s100x200/0abc76c8f2938a86e4bd7e18fe4757e6d942025b.gifv) ![](https://64.media.tumblr.com/d250f25e0e37392678f29fa4f7871815/78c75168f9ef587b-47/s100x200/e3cf61b0c1f00e94b05019716f42891fc771859a.pnj) ![](https://64.media.tumblr.com/f268c1b4102643fdea8dc0f8e2f4cd4d/81a7afd7695dcc71-e2/s100x200/fd1e1980cc6b16c727dceacb1fcaf88348fc6a3d.pnj) ![](https://64.media.tumblr.com/869533bf0f20e3782a67a8befd837fd5/81a7afd7695dcc71-f0/s100x200/6d3bd8d8304a23aa6e9db2e90820c3ef10bd7edf.pnj) ![](https://64.media.tumblr.com/d06619559a82c3839b9abca475beec91/63ef24bab1a40a9d-79/s100x200/2682377e4afafaf88733ade84118b0a1e2c7c62d.webp) ![](https://64.media.tumblr.com/18f543be95eabf834a3070f95d7a2019/2fe1a63ff43cd504-d6/s100x200/e93fb9b8861fb321a5b98956eb305deaffa0a913.gifv) ![](https://64.media.tumblr.com/e59a30ea4d2051a9be973bccd1b15a0c/576728875d7d4911-d0/s100x200/cbb9f9f28de4f0dba2a8e8d12ad77b217b770542.pnj) ![](https://64.media.tumblr.com/57fece57e5b8a271d175296cfb783a03/abb353c3a2fae4c6-ce/s100x200/27243e431467e9dba255d4a27c180d20695075c3.gifv) ![](https://64.media.tumblr.com/3784b47c5d80fcff3ac3651f23f0896e/abb353c3a2fae4c6-34/s100x200/d72fcea1131f93f83ac54bd5e459de75f8d3f5b4.webp) ![](https://64.media.tumblr.com/76e4a4cb793a6572d39d4b20ebee2374/824d2bef1f4464fb-13/s100x200/9b48d6fc316adbed5a2b0b5e836c75819d6ed9f0.gifv) <img width="97" height="54" alt="image" src="https://github.com/user-attachments/assets/cb1ddd85-945b-4c99-b54f-176d41bb6064" /><img width="100" height="55" alt="image" src="https://github.com/user-attachments/assets/9cfa2b9c-b858-4948-9286-4e0c1f8f618c" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4f12f5f5-36e7-470a-95d2-3739fa40e7ce" />![](https://64.media.tumblr.com/00ad5571cd3af12db72db64424b25f01/741149a108da73ee-29/s100x200/defaad6539ce24f9d43a091afc3ebb6fc4937725.gifv)![](https://64.media.tumblr.com/0a699a60737a9d89330cbfd94d91573c/741149a108da73ee-4c/s250x400/8f6c3bba793dbd3cbe5e84e801c50367333737fe.jpg)![](https://64.media.tumblr.com/f78aa9c0cc9e78964a3126bd998774b6/741149a108da73ee-df/s100x200/b87c908f78277d7e292316b562c46a2b7f39b7e9.pnj)![](https://64.media.tumblr.com/ac8aef81fcf02d42454aa4bdd6646325/741149a108da73ee-6a/s250x400/7b992a961070755d5d37b3972e7e934920799035.gifv)
 
 
 
@@ -40,6 +11,6 @@ basic dni lolz, proshippers n under 16s i also block freely so don't get bothere
 
 
 
-
+<img width="534" height="468" alt="177559066947024054" src="https://github.com/user-attachments/assets/57063a5c-90b3-412a-a484-2fad489e4e39" />
 
 
