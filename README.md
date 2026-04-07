@@ -1,14 +1,15 @@
 
 
-<img width="634" height="570" alt="177559066947024054" src="https://github.com/user-attachments/assets/57063a5c-90b3-412a-a484-2fad489e4e39" />
-
    HELLO! I AM HENRY AND I AM 18 YEARS OLD!! 
 
 
 
 
-MY MAIN INTERESTS ARE OVERWATCH, HORROR, YELLOWJACKETS,FNAF AND THE FRIDAY THE 13TH FRANCHISE!!
+MY MAIN INTERESTS ARE OVERWATCH, HORROR, YELLOWJACKETS,FNAF AND THE FRIDAY THE 13TH FRANCHISE!
 
+
+
+<img width="634" height="570" alt="177559066947024054" src="https://github.com/user-attachments/assets/57063a5c-90b3-412a-a484-2fad489e4e39" />
 
 
 
