@@ -17,3 +17,7 @@
    <b>BYF</b><img src="https://64.media.tumblr.com/0a7289dbb97ebfe2095a012de32a9f22/1bf8221d27fdef63-b1/s75x75_c1/205d575912c44a1bd51d769d407532dcdf2afb81.gifv"/><br>
    I AM PRETTY EASY GOING WITH WHO INTS WITH ME, BUT I AM 18 SO ID PREFER PEOPLE IN MY AGE GROUP LOL +
    I AM ALWAYS WITH MY PALS AND BF WHO I LOVE VERY MUCH LOL #SHOUTOUTMILO
+
+
+
+i also stole this from melly lol
