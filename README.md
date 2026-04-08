@@ -1,21 +1,19 @@
+ <p align="center">
+<img width="634" height="568" alt="image" src="https://github.com/user-attachments/assets/d91a3e79-5eb3-4df7-a5c2-b2b6af6ba804" />
+
+</p>
+<p align="center">
+   <b>˚ʚ♡ɞ˚</b><br>
+   HENRY<br>
+  18 HE/HIM!<br>
+  <img width="400" height="13" alt="image" src="https://github.com/user-attachments/assets/00789e9d-9f8b-4c4a-b057-79c0ab34abb7" />
 
 
-   HELLO! I AM HENRY AND I AM 18 YEARS OLD!! 
+<p align="center">
+   <img src="https://64.media.tumblr.com/ceb94fd9e75c354b30d52ad5478b5da8/1bf8221d27fdef63-7e/s75x75_c1/c4a28dd67b63ddc2fb7c60870980020064b829be.pnj"/><b>INTERESTS</b><br>
+   MY MAIN INTERESTS ARE OVERWATCH, HORROR, YELLOWJACKETS,FNAF AND THE FRIDAY THE 13TH FRANCHISE!
 
-
-
-
-MY MAIN INTERESTS ARE OVERWATCH, HORROR, YELLOWJACKETS,FNAF AND THE FRIDAY THE 13TH FRANCHISE!
-
-
-
-
-
-
-
-I AM PRETTY EASY GOING WITH WHO INTS WITH ME, BUT I AM 18 SO ID PREFER PEOPLE IN MY AGE GROUP LOL
-
-
-
-
+<p align="center">
+   <b>BYF</b><img src="https://64.media.tumblr.com/0a7289dbb97ebfe2095a012de32a9f22/1bf8221d27fdef63-b1/s75x75_c1/205d575912c44a1bd51d769d407532dcdf2afb81.gifv"/><br>
+   I AM PRETTY EASY GOING WITH WHO INTS WITH ME, BUT I AM 18 SO ID PREFER PEOPLE IN MY AGE GROUP LOL +
    I AM ALWAYS WITH MY PALS AND BF WHO I LOVE VERY MUCH LOL #SHOUTOUTMILO
