@@ -21,3 +21,4 @@
 
 
 i also stole this from melly lol
+![Bear5_Retake](https://github.com/user-attachments/assets/36b425e4-4a34-4a74-be28-a952ba4ab221)
