@@ -11,7 +11,7 @@
 
 <p align="center">
    <img src="https://64.media.tumblr.com/ceb94fd9e75c354b30d52ad5478b5da8/1bf8221d27fdef63-7e/s75x75_c1/c4a28dd67b63ddc2fb7c60870980020064b829be.pnj"/><b>INTERESTS</b><br>
-   MY MAIN INTERESTS ARE OVERWATCH, HORROR, YELLOWJACKETS,FNAF AND THE FRIDAY THE 13TH FRANCHISE!
+   MY MAIN INTERESTS ARE OVERWATCH, HORROR, YELLOWJACKETS,FNAF AND THE FRIDAY THE 13TH FRANCHISE! and bear5.
 
 <p align="center">
    <b>BYF</b><img src="https://64.media.tumblr.com/0a7289dbb97ebfe2095a012de32a9f22/1bf8221d27fdef63-b1/s75x75_c1/205d575912c44a1bd51d769d407532dcdf2afb81.gifv"/><br>
