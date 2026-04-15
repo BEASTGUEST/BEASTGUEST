@@ -1,5 +1,5 @@
  <p align="center">
-<img <img width="700" height="800" alt="SPRING" src="https://github.com/user-attachments/assets/79897d6c-f3c0-41b2-9469-42e8f9fdc4df" />
+<img <img width="500" height="600" alt="SPRING" src="https://github.com/user-attachments/assets/79897d6c-f3c0-41b2-9469-42e8f9fdc4df" />
 
  
 
