@@ -5,7 +5,7 @@
 
 </p>
 <p align="center">
-   <b>˚ʚ♡ɞ˚</b><br>
+   <b>૮(¬`‸´¬)ა</b><br>
    HENRY<br>
   18 HE/HIM!<br>
   <img width="400" height="13" alt="image" src="https://github.com/user-attachments/assets/00789e9d-9f8b-4c4a-b057-79c0ab34abb7" />
