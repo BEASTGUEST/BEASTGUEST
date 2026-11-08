@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src=https://64.media.tumblr.com/c4dae9b43ba10cf9ace129b36b2ee5e9/0dbf2b8590757c36-0e/s250x400/4dd6e14526620919caa568272f8c2b7f1261af7e.gifv>
+
 </br>
 <p align="center">  <img width="236" height="236" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/johndoe%20for%20henry!>
 <p align="center">
